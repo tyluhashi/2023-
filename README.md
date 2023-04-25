@@ -5,4 +5,4 @@
 
 🟣精准盒打击, 快来体验吧, 点击下方链接免费使用
 
-免費社工庫: t.me/sgk2023_03_30bot?start=SGK_UU2ZNGOA
+免費社工庫: https://t.me/sgk2023_03_30bot?start=SGK_UU2ZNGOA
